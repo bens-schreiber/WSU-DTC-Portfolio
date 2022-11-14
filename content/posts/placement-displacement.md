@@ -15,3 +15,4 @@ The elements of art that I incorporated into the piece is line, shape, and space
 For the technical requirement, I used the shape tools and RGB color space to create small objects entirely from scratch. These were very difficult to make (as someone who isn't great at drawing), and took a lot of learning illustrator to do. The flame on the dollar bill had an especially complicated process to make, involving grouping circles in specific patterns and then deleting overlapping portions.
 
 Place and Displacement is shown through the economic standpoint I took on the piece, and is well represented by my usage of the elements of art, and the illustrator concepts that I learned for this assignment.
+![Image alt](/Screenshot%202022-11-14%20at%2011.21.29%20AM.png)
