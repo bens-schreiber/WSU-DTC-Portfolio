@@ -21,12 +21,20 @@ Another artist, Alexey Kondakov, takes advantage of copyright, editing classical
 
 Works Cited:
 
+# (1) 
 Copyright Law and Public Domain: How They Affect Native Communities | The Sustainable Heritage Network, <https://sustainableheritagenetwork.org/digital-heritage/copyright-law-and-public-domain-how-they-affect-native-communities>. Accessed 12 Dec. 2022.
 
+# (2) 
 “Over 9,000 Years Later, Kennewick Man Will Be Given a Native American Burial.” Smithsonian.com, Smithsonian Institution, 28 Apr. 2016, <https://www.smithsonianmag.com/smart-news/over-9000-years-later-kennewick-man-will-be-given-native-american-burial-180958947/>
 
+# (3) 
 Shaw, Anny. “Not Laughing Now: Banksy Loses Second Trademark Case over Famous Monkey Image.” The Art Newspaper - International Art News and Events, The Art Newspaper - International Art News and Events, 28 Sept. 2021, <https://www.theartnewspaper.com/2021/05/20/not-laughing-now-banksy-loses-second-trademark-case-over-famous-monkey-image>
 
+# (4) 
 “About Artworks, Pictures of Artworks... and the Possibility of Copying Them.” IP Helpdesk, 13 Dec. 2021, <https://intellectual-property-helpdesk.ec.europa.eu/news-events/news/about-artworks-pictures-artworks-and-possibility-copying-them-2021-12-13_en>
+
+# (5) 
 Barnes, Sara. “Artist Superimposes Subjects of Classical Paintings into Modern Day Kiev.” My Modern Met, 16 June 2016, <https://mymodernmet.com/alexey-kondakov-superimposed-art-history-kiev/>.
+
+# (6) 
 Copyright Law and Public Domain: How They Affect Native Communities | The Sustainable Heritage Network, <https://sustainableheritagenetwork.org/digital-heritage/copyright-law-and-public-domain-how-they-affect-native-communities>. Accessed 12 Dec. 2022.
