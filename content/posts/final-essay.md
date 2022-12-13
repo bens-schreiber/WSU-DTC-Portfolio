@@ -1,5 +1,5 @@
 +++
-title = "opyright Repatriation and Restitution"
+title = "Copyright Repatriation and Restitution"
 date = "2022-12-12"
 author = "Benjamin Schreiber"
 description = "Final Essay, Copyright Repatriation and Restitution"
